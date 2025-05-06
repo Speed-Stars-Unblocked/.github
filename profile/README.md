@@ -2,6 +2,8 @@ Looking for a game that's both entertaining and offers that "intense, mind-bendi
 
 In this article, I won't just introduce you to the game, but also share the perspective of an experienced player – from the first face-plant to climbing up the leaderboard. If you're really looking to discover a simple yet captivating game, keep reading to find out why you'll keep coming back to play it… every day.
 
+[Click to Play Speed Stars Unblocked](https://1kb.link/ianQKG) – No download. No registration. Just you and speed!
+
 ## Controls – Sounds Easy, But You'll Realize It's Not That Simple
 
 **On PC:**
